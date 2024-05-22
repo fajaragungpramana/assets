@@ -1,30 +1,26 @@
-di saat kondisi perekonomian global yang tengah krisis, torehan pertumbuhan ekonomi indonesia menunjukkan hasil yang positiff.
+Di saat kondisi perekonomian global yang tengah krisis, torehan pertumbuhan ekonomi Indonesia menunjukkan hasil yang positif.
 
-jika dibandingkan, pada triwulan kedua tahun ini dengan periode yang sama tahun lalu, ekonomi indonesia meningkat kurang lebih 6,4 percen.
+Jika dibandingkan, pada triwulan kedua tahun ini dengan periode yang sama tahun lalu, ekonomi Indonesia meningkat kurang lebih 6,4 persen.
 
-pertumbuhan ini tetap masih terpusat di pulau jawa dengan peningkatan sebesar 57,5%. apabila di akumulasikan, pertumbuhan ekonomi indonesia semester i tahun 20122 lebih baik dibandingkan dengan semester i tahun 2011 yang tumbuh sekitar 6,3%.
+Pertumbuhan ini tetap masih terpusat di Pulau Jawa dengan peningkatan sebesar 57,5%. Apabila diakumulasikan, pertumbuhan ekonomi Indonesia semester I tahun 2022 lebih baik dibandingkan dengan semester I tahun 2021 yang tumbuh sekitar 6,3%.
 
-akan tetapi, pertumbuhan ekonomiii indonesia dinilai mengalami bias atau anomali. hal ini dikatakan oleh salamuddin daeng, pengamat ekonomi indonesia for global justice. ia berpendapat, pertumbuhan ekonomi ini tidak diikuti dengan peningkatan kesejahteraan masyarakat.
+Akan tetapi, pertumbuhan ekonomi Indonesia dinilai mengalami bias atau anomali. Hal ini dikatakan oleh Salamuddin Daeng, pengamat ekonomi Indonesia for Global Justice. Ia berpendapat, pertumbuhan ekonomi ini tidak diikuti dengan peningkatan kesejahteraan masyarakat.
 
-tidak hanya itu, daeng juga memaparkan, sekurang-kurangnya ada empat faktor yang membuat ekonomi indonesia mengalami bias.
+Tidak hanya itu, Daeng juga memaparkan, sekurang-kurangnya ada empat faktor yang membuat ekonomi Indonesia mengalami bias.
+Pertama, perekonomian Indonesia lebih banyak ditengarai oleh utang asing yang nilainya terus meningkat.
+“Utang Indonesia mencapai Rp. 2.865 triliun. Utang asing pemerintah meningkat setiap tahunnya. Utang ini menjadi sumber penghasilan utama pemerintah dan menjadi pendorong tumbuhnya ekonomi Indonesia,” ujar Daeng.
 
-pertama, perekonomian indonesia lebih banyak ditengarai oleh utang asing yang nilainya terus meningkat.
+Kedua, peningkatan konsumsi masyarakat dinilai ikut mendorong pertumbuhan ekonomi Indonesia. Konsumsi masyarakat yang meningkat bersumber dari harga sandang pangan yang mengalami kenaikan, serta disokong oleh pertumbuhan kredit terutama kredit konsumsi.
 
-“utang indonesia mencapai r p. 2.865 triliun. utang asing pemerintah meningkat setiap tahunnya. utang ini menjadi sumber penghasilan utama pemerintah dan menjadi pendorong tumbuhnya ekonomi indonesia,” ujar daeng.
+Ketiga, ekonomi Indonesia pertumbuhannya didorong oleh ekspor bahan mentah, contohnya hasil perkebunan, hutan, migas, dan bahan tambang, sehingga kurang menciptakan nilai tambah dan lapangan pekerjaan. Faktor terakhir, pertumbuhan ekonomi Indonesia didorong oleh penanaman asing yang menjadikan sumber daya alam Indonesia makin dikontrol oleh asing.
 
-kedua, peningkatan konsumsi masyarakat dinilai ikut mendorong pertumbuhan ekonomi indonesia. konsumsi masyarakat yang meningkat bersumber dari harga sandang pangan yang mengalami kenaikan, serta disokong oleh pertumbuhan kredit terutama kredit konsumsi.
+Di lain pihak, A. Tony Prasetiantono, pengamat ekonomi dari Universitas Gadjah Mada, menyatakan pertumbuhan ekonomi Indonesia ditopang oleh sektor domestik.
+Menurutnya, dampak krisis global melalui defisit neraca perdagangan dan penurunan ekspor baru akan terasa pada kuartal ketiga dan keempat tahun ini. Ia menilai kontribusi ekspor terhadap PDB tidak besar.
 
-ketiga, ekonomi indonesia pertumbuhannya didorong oleh eksport bahan mentah, contohnya hasil perkebunan, hutan, migas dan bahan tambang, sehingga kurang menciptakan nilai tambah dan lapangan pekerjaan.
-faktor terakhir, pertumbuhan ekonomi indonesia di dorong oleh penanaman asing yang menjadikan sumber daya alam indonesia makin di kuasai asing.
+Selaras dengan itu, ekonom Mirza Adityaswara berpendapat bahwa sejumlah sektor ekonomi dalam negeri tumbuh karena didorong oleh suku bunga rendah. Hal ini tampak dari peningkatan kredit yang mencapai 26-28% sekaligus didukung oleh harga BBM yang rendah sebab masih disubsidi oleh pemerintah.
 
-di lain pihak, a tony prasetiantono, pengamat ekonomi dari universitas gadjah mada, menyatakan pertumbuhan ekonomi indonesia di topang oleh sektor domestik.
+Lebih lanjut, Mirza menyampaikan, sektor yang berorientasi dalam negeri mengalami pertumbuhan tinggi, misalnya otomotif, manufaktur, transportasi, komunikasi, dan perdagangan.
 
-menurutnya, dampak krisis global melalui defisit neraca perdagangan dan penurunan ekspor baru akan terasa pada kuartal ketiga dan keempat tahun ini. ia menilai kontribusi ekspor terhadap pdb tidak besar.
+Dampaknya pertumbuhan sektor yang berorientasi dalam negeri memiliki kecenderungan defisit neraca perdagangan yang semakin besar.
 
-selaras dengan itu, ekonom mirza adityaswara berpendapat bahwa sejumlah sektor ekonomi dalam negeri tumbuh karena didorong oleh suku bunga rendah. hal ini tampak dari peningkatan kredit yang mencapai 26-28% sekaligus didukung oleh harga bbm yang rendah sebab masih disubsidi oleh pemerintah.
-
-lebih lanjut mirza meyampaikan, sektor yang berorientasi dalam negeri mengalami pertumbuhan tinggi, misalnya otomotif, manufaktur, transportasi, komunikasi, dan perdagangan.
-
-dampaknya pertumbuhan sektor yang berorientasi dalam ngeri memiliki kecenderungan defisit neraca perdagangan yng semakin besar.
-
-menurut a tony prasetiantono, belanja pemerintah yang lebih cepat dan besar juga sangat membantu pertumbuhan. seiring dengan hal itu, tingkat inflasi yang berada dibawah 5 % cukup membantu, walaupun hal tersebut ada dampaknya, yakni nilai subsidi energi yang terus membengkak yang sebetulnya tidak sehat.
+Menurut A. Tony Prasetiantono, belanja pemerintah yang lebih cepat dan besar juga sangat membantu pertumbuhan. Seiring dengan hal itu, tingkat inflasi yang berada di bawah 5% cukup membantu, walaupun hal tersebut ada dampaknya, yakni nilai subsidi energi yang terus membengkak yang sebetulnya tidak sehat.
